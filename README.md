@@ -20,9 +20,10 @@ Here are some ideas to get you started:
 Je conçois des **produits numériques rentables** :  
 SaaS, applications, plateformes de formation, outils FinTech et systèmes automatisés.
 
-🌍 https://msprods.fr  
-💼 LinkedIn : Mariam Sanoko  
-📫 contact@msprods.fr  
+📩 mariamsanoko@gmail.com  
+🌍 https://www.msprods.fr  
+🌍 https://www.mariamsanoko.fr  
+💻 https://github.com/mariamsanoko  
 
 ---
 
