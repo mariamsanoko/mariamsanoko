@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 Je transforme des idées en **produits numériques rentables** :  
 applications, plateformes de formation, SaaS, automatisations et outils métiers.
 
-🌍 https://msprods.fr  
+🌍 https://www.msprods.fr  
 💼 LinkedIn : Mariam Sanoko  
 
 ---
